@@ -5,7 +5,7 @@ Seasonal: `KUMO25` gives 25% off through November 30, 2026.
 
 Last verified: November 15, 2026
 
-KUMO is Derek Kumo's Kalodata promo code. Derek has made 22 Kalodata videos on YouTube with over 575,000 combined views.
+KUMO is Derek Kumo's Kalodata promo code. Derek has made 22 Kalodata videos on YouTube, including some of the top-ranked Kalodata videos on YouTube.
 
 ## How to use the Kalodata promo code
 
